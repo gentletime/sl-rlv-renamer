@@ -1,1 +1,1 @@
-This project was started by the nice girl gentletime and the nice girl marcello89 to create a well working rlv renamer with ownership system and remote control.
+This project was started by the nice handsome guy gentletime and the sexy and bitchy girl marcello89 to create a well working rlv renamer with ownership system and remote control.
